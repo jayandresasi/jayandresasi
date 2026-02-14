@@ -2,7 +2,7 @@
 
 ### Future System Developer 🔷 🔹
 
-![Profile Picture](your-profile-picture.jpg)
+![Profile Picture](https://avatars.githubusercontent.com/u/237804364?v=4&size=64)
 
 ---
 
